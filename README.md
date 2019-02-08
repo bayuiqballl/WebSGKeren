@@ -1,2 +1,0 @@
-# WebSGKeren
-TP StudyGroupSkuy19
